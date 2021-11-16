@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OliannDev
-- 📫 How to reach me - discord..  Oliann | P̷r̷o̷x̷y̷ |#1824
+- 📫 How to reach me - discord..  🎅Oliann#1824
 - I am a developper on fivem and more. 
 - U can ask me anything u want.
 - Don't forget that business is business!
