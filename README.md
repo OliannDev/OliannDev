@@ -6,3 +6,6 @@
 I can make script in french and english , Don't be shy to ask me something ;) 
 je peut faire des scripts en anglais et francais , soyez pas gener de me demander quelque chose ;) 
 
+My discord server 
+
+https://discord.gg/D6UnFCrjBz
