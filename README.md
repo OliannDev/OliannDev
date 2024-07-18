@@ -1,1 +1,2 @@
-Oliann Official#5740
+Personal Discord: _therealolivier
+Discord Server: https://discord.com/invite/kKbCpeUtpj
